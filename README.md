@@ -10,7 +10,7 @@
 
 📫 Get in Touch
 📍 Based in London, UK
-📧 Reach me at adimihai13@outlook.com
+📧 Reach me at xbl_ze@outlook.com
 
 If you’ve got advice, opportunities, or just want to chat about tech & growth — I'm all ears! 🚀
 
