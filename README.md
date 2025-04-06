@@ -12,7 +12,7 @@
 📍 Based in London, UK
 📧 Reach me at xbl_ze@outlook.com
 
-If you’ve got advice, opportunities, or just want to chat about tech & growth — I'm all ears! 🚀
+If you’ve got advice, opportunities, or just want to chat — I'm all ears! 🚀
 
 <!---
 adrian-tache/adrian-tache is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
