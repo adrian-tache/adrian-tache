@@ -10,7 +10,7 @@
 
 📫 Get in Touch
 📍 Based in London, UK
-📧 Reach me at xbl_ze@outlook.com
+📧 Reach me at adriantache13@gmail.com
 
 If you’ve got advice, opportunities, or just want to chat — I'm all ears! 🚀
 
